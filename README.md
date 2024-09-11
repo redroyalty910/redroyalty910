@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Tim Mills!
-- 👀 I’m interested in passionately contributing to society my love and knowledge
+- 👀 I’m interested in contributing to society through my love, creativity, and wisdom
 - 🌱 I’m currently learning everything that I can about C++ programming! 
 - 💞️ I’m looking to collaborate on just about anything you can put your mind to !
 - 📫 How to reach me -> @timothy.d.mills@outlook.com
