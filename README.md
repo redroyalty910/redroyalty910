@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hey, I'm Tim Mills ★ (he/him) !<br>I'm looking to collaborate on anything you can put your mind to.<br>You can reach me at --> timothy.d.mills@outlook.com<br>I am a perfectionist; the absolute worst kind.<br>I hate seafood, and I love bees!
+Hey, I'm Tim Mills ★ (he/him) !<br>I'm willing to collaborate on anything you can put your mind to.<br>You can reach me at --> timothy.d.mills@outlook.com<br>I am a perfectionist; the absolute worst kind.<br>I hate seafood, and I love bees!
 
 
 ## 🌐 Socials:
